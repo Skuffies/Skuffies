@@ -1,3 +1,3 @@
 ### Hi I'm Skuffies 👋
 
-Total beginner at everything to do wíth creating/coding games and applications but I try. I haven't finished or published anything related here but hope to do so in the future.
+I recently started with both photography and programming. I haven't yet finished or published anything but hope to do so in the future. With my short experience of using Github I can safely say I like it and will continue to use it.
